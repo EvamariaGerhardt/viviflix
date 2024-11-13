@@ -34,3 +34,29 @@ com poderes especias, mas também inimigos ocultos perigosos.
 ## Your name 
 ![](https://media1.tenor.com/m/WqTjL5v0dugAAAAC/your-name-walk-away.gif)
 
+Mitshua é filha do prefeito em uma pequena cidade, mas sonha em tentar a sorte em Tóquio. Taki trabalha em um restaurante
+em Tóquio e deseja largar seu emprego. Os dois nao se conhecem, mas estão ligados em imagens de seus sonhos.
+
+## O Mundo Imaginário do Dr. Parnassus
+![](https://media1.tenor.com/m/k8U7SZAX_aoAAAAd/shit.gif)
+
+Dono de uma companhia de teatro itinerante, tem um segredo obscuro: há muitos anos, ele vendeu a alma de sua filha para o diabo, que volta para cobrar o acordo. 
+Agora, Parnassus precisa coletar cinco almas para salvar a jovem.
+
+## Megatubarão 2 
+![](https://media1.tenor.com/m/qLD7v6jhc_QAAAAd/shark-attack-attack.gif)
+
+Jonas Taylor lidera uma equipe de pesquisa em um mergulho exploratório nas profundezas do oceano.
+Enfrentando tubarões pré-históricos colossais e saqueadores ambientais implacáveis, eles devem fugir e nadar mais que seus impiedosos predadores.
+
+## A vida secreta de Walter Mitty 
+![](https://media1.tenor.com/m/jHgIOpKl3NwAAAAd/walter-mitty-longboard.gif)
+
+Walter Mitty desenvolve fotos para uma revista, mas foge do tédio através de devaneios heroicos.
+Quando Walter recebe uma chance para uma verdadeira aventura, ele tem a chance de construir um relacionamento com uma colega de trabalho chamada Cheryl.
+
+## Verão de 84 
+![](https://media1.tenor.com/m/nUq2C5QAxygAAAAd/summer-of84-davey-armstrong.gif)
+
+Um grupo de adolescentes começa a suspeitar que um policial local pode ser um serial killer. 
+Davey e seus amigos começam sua própria investigação, que tem resultados surpreendentes.
