@@ -50,7 +50,7 @@ Jonas Taylor lidera uma equipe de pesquisa em um mergulho exploratório nas prof
 Enfrentando tubarões pré-históricos colossais e saqueadores ambientais implacáveis, eles devem fugir e nadar mais que seus impiedosos predadores.
 
 ## A vida secreta de Walter Mitty 
-![](https://media1.tenor.com/m/jHgIOpKl3NwAAAAd/walter-mitty-longboard.gif)
+![](https://media1.tenor.com/m/SD0dNy1r9VsAAAAd/espoir-secret-life-of-walter-mitty.gif)
 
 Walter Mitty desenvolve fotos para uma revista, mas foge do tédio através de devaneios heroicos.
 Quando Walter recebe uma chance para uma verdadeira aventura, ele tem a chance de construir um relacionamento com uma colega de trabalho chamada Cheryl.
